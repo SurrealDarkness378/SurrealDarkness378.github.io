@@ -18,6 +18,3 @@ It starts almost unnoticeably, at first, there is a slight disposition towards s
 
 Time boundaries… I wish I could repair it.
 
-
-Just start writing down all my ideas, or sleeping? Which is wisest now? Should I start reading the Algebra course instead?
-
